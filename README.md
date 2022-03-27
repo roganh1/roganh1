@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @roganh1
+- 👀 I’m interested in computers, technology, photography, music, and ceramics
+- 🌱 I’m currently learning Python
+- 📫 The best place to reach me is at rogan.helm@mnsu.edu
