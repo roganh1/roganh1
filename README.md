@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Rogan
 - 👀 I’m interested in computers, technology, photography, and music
 - 🌱 I’m currently a sophomore at MSU
-- 📫 The best place to reach me is at rogan.helm@mnsu.edu
+- 📫 The best place to reach me is at roganhelm@proton.me
