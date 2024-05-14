@@ -1,4 +1,3 @@
 - 👋 Hi, I’m Rogan
 - 👀 I’m interested in computers, technology, photography, and music
-- 🌱 I’m currently a sophomore at MSU
 - 📫 The best place to reach me is at roganhelm@proton.me
